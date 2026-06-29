@@ -4,7 +4,7 @@
 
 💗 Hi, I'm Wes 💗
 
-*I'm really trying babe. I'm at the door.*
+*I'm really trying babe. I'm at the door, i won't hurt you.*
 
 ---
 
